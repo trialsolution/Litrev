@@ -1,1 +1,1 @@
-Zero and small shares in numerical simulation models of international 
+Zero and small shares in numerical simulation models of international trade
