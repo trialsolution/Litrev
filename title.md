@@ -1,1 +1,1 @@
-Zero and small trade s
+Zero and small 
