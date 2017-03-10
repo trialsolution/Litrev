@@ -1,1 +1,1 @@
-Zero and small shares in 
+Zero and small shares in numbe
